@@ -1,2 +1,1 @@
-# synchrony_and_synergy
-Synchrony and Synergy in Couple Dance
+# Synergy and Synchrony in Couple Dances
