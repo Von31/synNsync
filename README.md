@@ -1,1 +1,2 @@
-# Synchrony and Synergy in Couple Dance
+# Synergy and Synchrony in Couple Dance
+
